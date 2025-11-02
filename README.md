@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **HTML, CSS, JAVASCRIPT, JAVA, REACT(BASIC)**
 
-- 📫 How to reach me **priyadharshinithi@gmail.com**
+- 📫 How to reach me **priyathiru.induction@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Y-aWago_0ATmxc20Aq42pnx1PnRiYq9J/view](https://drive.google.com/file/d/1Y-aWago_0ATmxc20Aq42pnx1PnRiYq9J/view)
 
